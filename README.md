@@ -1,1 +1,1 @@
-https://TakoTsubo63.github.io/rsschool-cv/cv
+https://TakoTsubo63.github.io/rsschool-cv/
